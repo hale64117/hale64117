@@ -4,6 +4,4 @@ ghcchfthxtf
 wdddwwdwd
 fdgfdfsfs
 vmhnhcgng
-ggrdgrg
-gthstrgtrarw
-rgfgggg
+ggrdg
